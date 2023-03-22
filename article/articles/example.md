@@ -1,40 +1,10 @@
-# Pink Floyd - The Wall
-## Claudio Satriano
-### From [https://en.wikipedia.org/wiki/The_Wall](https://en.wikipedia.org/wiki/The_Wall)
+BBC Review: can be found on https://www.bbc.co.uk/music/reviews/8b8c/
 
-The Wall is the eleventh studio album by English rock band Pink Floyd, released
-in 1979 through Harvest and Columbia Records. Conceived during the In The Flesh
-tour, recording spanned nearly a year, from December 1978 to November 1979, and
-took place in France, England, New York, and Los Angeles. It was produced by Bob
-Erzin, who helped to refine the concept and bridge tensions during recording.
-Some of the outtakes from the recording sessions were used on the band's next
-album, The Final Cut (1983).
+There's confidence exuding from almost every track.
 
-![cover](https://upload.wikimedia.org/wikipedia/en/1/13/PinkFloydWallCoverOriginalNoText.jpg)
+Sid Smith 2007
 
-A rock opera and a concept record, its story explores Pink, a jaded rockstar
-that bassist Roger Waters modeled after himself and band founder Syd Barrett.
-Pink's life begins with the loss of his father during the Second World War and
-continues with abuse from his schoolteachers, an overprotective mother, and the
-breakdown of his marriage; all contribute to his eventual self-imposed isolation
-from society, symbolised by a wall. The band, who were then struggling with
-personal and financial difficulties, supported the idea. The Wall is the last
-album to feature Pink Floyd as a quartet; keyboardist Richard Wright was fired
-by Waters during production, but stayed on as a salaried musician. The record
-was promoted with three singles: "Another Brick in the Wall, Part 2", "Run Like
-Hell", and "Comfortably Numb", the first of which became the band's only number
-one single in the US. From 1980 to 1981, the group embarked on The Wall Tour,
-which was notable for its elaborate theatrical effects. The concept was later
-adapted into a feature film of the same name, directed by Alan Parker and
-released in 1982.
-
-The Wall received mixed reviews from critics upon its release, many of whom
-found its contents to be overblown and pretentious. Retrospectively, it is
-considered one of the greatest albums of all time, and is one of the most
-well-known concept albums. The record was a commercial success, reaching number
-one in the US (where it stayed for 15 weeks), and number three in the UK. As of
-2018, the album has sold over 24 million copies, the second best-selling in the
-band's catalog, as well as one of the best-selling of all time.
-
-> I think things like 'Comfortably Numb' were the last embers of mine and
-> Roger's ability to work collaboratively together. David Gilmour
+Any attempt to move away from a tried and tested formula is often met with resistance by some fans who never want their idols to change. Smarter than your average heavy metal band, the more complex turn-on-a dime twists of their previous albums, Master Of Puppets and 1989’s And Justice For All, were trimmed back in favour of a more honed-down delivery. Though the band didn’t always see eye to eye with Bob Rock (who had previously cut his teeth engineering for the likes of Bon Jovi before producing Motley Crue’s Dr.Feelgood), the tensions between the two camps resulted in an album bursting at the seams with alternative ideas.
+Sure enough, accusations that they had sold out came from the rump of hardcore fans within seconds of their fifth album being released in 1991. Several years later thousands of fans signed an online petition calling on the band to sever its links with Bob Rock such was their conviction that their beloved Metallica had strayed from the straight and narrow.
+Yet his involvement gained them mass sales (number one on both sides of the Atlantic) and earned them the Grammy they’d missed out on, having lost out to Jethro Tull’s Catfish Rising the previous year. With millions of new fans going on to discover their back catalogue, Metallica moved from cult metal gods to bona fide rock stars, straddling the airwaves with the psycho-dramatics of “Enter Sandman”, whose terse motifs served notice that things were changing. The spaghetti western set dressing of “The Unforgiven”, “Nothing Else Matters” with its sensitive lyrics and string section embellishments, as well as the widescreen dynamics of “My Friend Of Misery” demonstrated how keen they were to move things on.
+In “The God That Failed”, vocalist, rhythm guitarist and principle writer, James Hetfield deals unflinchingly with parental loss and the contradictions of faith in a mature and considered manner. The confidence exuding from almost every track isn’t due to a clichéd, puffed-up HM swagger but a result of literate and articulate artists breaking free of generic expectation.
