@@ -1,4 +1,8 @@
-BBC Review: can be found on https://www.bbc.co.uk/music/reviews/8b8c/
+# BBC Review on Metallica - *Metallica*
+
+## Can be found [here](https://www.bbc.co.uk/music/reviews/8b8c/)
+
+![Cover](https://upload.wikimedia.org/wikipedia/fr/d/de/Metallica_%28album%29.jpg)
 
 There's confidence exuding from almost every track.
 
